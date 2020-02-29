@@ -1,1 +1,1 @@
-# vk.lol
+# vk.github.io
